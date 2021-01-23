@@ -1,0 +1,1 @@
+# Movimento-de-Transla-o-2.0lvs95p
